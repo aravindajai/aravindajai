@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on AI Technologies.<br>👯 I’m looking to collaborate on NLP and Computer Vision projects.<br>🤝 I’m looking for help with new career opportunities in AI.<br>🌱 I’m currently learning AWS Lex chat bot services.<br>📫 How to reach me: 📧aravindajaim@gmail.com 
+🔭 I’m currently working on learning new AI Technologies.<br>👯 I’m looking to collaborate on NLP and Computer Vision projects.<br>🤝 I’m looking for help with new career opportunities in AI.<br>🌱 I’m currently learning AWS Lex chat bot services.<br>📫 How to reach me: 📧aravindajaim@gmail.com 
 📱9747281411<br>😄 Pronouns: He/him<br>
 
 
